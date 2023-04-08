@@ -11,6 +11,6 @@ Me gusta y tengo interés por la programación, la Inteligencia Artificial y tod
 ## Más info sobre mí
 - Amo la música y escucho de todo 🎵 (en mi playlist podés pasar de María Graña o Pimpinela a Madonna sin escalas)
 - Practico canto 🎙
-- Me gusta más crear casas en los Sims que jugarlo 😅
+- Me gusta más crear casas en los Sims que jugarlo 😅🎮
 - Fan de las pastas, la pizza de jamón y morrón y el helado 🍨
 - Team invierno ❄
